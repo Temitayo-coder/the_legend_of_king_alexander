@@ -4,11 +4,11 @@ Part One:
 2. Alexander was known throughout the kingom for his kindnes and bravery.
 3. One day, while exploring the royal gardens, Alexander met a mysterius old woman.
 4. She had long, silver hair and a robe adorned with stange symbols.
-5. The woman approached Alexander and said, "You have a great dessiny ahead of you, young prince."
+5. The woman approached Alexander and said, "You have a great destiny ahead of you, young prince."
 6. Curious, Alexander asked, "What do you mean?"
 7. The woman smiled and replied, "You must embark on a journey to find the lost Jewel of Happines.
 8. It will bring peace and prospperity to your land."
-9. Determined to help his peple, Alexander set off on his quest the very next morning.
+9. Determined to help his people, Alexander set off on his quest the very next morning.
 10. He travlled through dense forests, climbed treacherous mountains, and crossed vast deserts.
 11. Along the way, he encountered many challnges.
 12. He faced fierce creatures, treacherous paths, and harsh weather.
